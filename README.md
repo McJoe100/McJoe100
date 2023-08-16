@@ -44,8 +44,20 @@ Departmental Head, AML/CFT Intelligence & Reporting Compliance, August 2019 - De
 - Handled correspondence with Financial Intelligence Unit (FIU) and managed FIU mailbox.
 - Trained staff on AML/CFT.
 
-[Continue with your other work experiences in a similar format]
-
+Access Bank Plc
+- Managed investigation reports for SAR reporting and risk assessment, April 2019 - August 2019
+- Conducted due diligence on high-risk customers and performed transaction monitoring.
+- Screened prospective customers against sanction and PEP lists.
+- Handled correspondence with Financial Intelligence Unit (FIU) and managed FIU mailbox.
+- Trained staff on AML/CFT.
+  
+Diamond Bank Plc, April 2011 - March 2019
+- Managed investigation reports for SAR reporting and risk assessment.
+- Conducted due diligence on high-risk customers and performed transaction monitoring.
+- Screened prospective customers against sanction and PEP lists.
+- Handled correspondence with Financial Intelligence Unit (FIU) and managed FIU mailbox.
+- Trained staff on AML/CFT
+  
 Professional Qualifications:
 - Association of Certified Anti-Money Laundering (ACAMS), Certified Member
 - Compliance Institute of Nigeria (CIN), Designate Compliance Professional
