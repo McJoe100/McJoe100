@@ -1,8 +1,7 @@
-[Your Name]
-[Address]
-[City, State, ZIP Code]
-[Phone Number]
-[Email Address]
+Joseph Oluwaseun Arabi
+Middlesbrough, United Kingdom
++447459367186
+seunreloaded@gmail.com
 
 Objective:
 Experienced Anti-Money Laundering Risk Specialist and Certified Data Practitioner with a proven track record in AML compliance and financial crime prevention. Seeking opportunities to contribute expertise in AML/CFT intelligence, transaction monitoring, and regulatory compliance.
